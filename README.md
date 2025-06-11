@@ -15,6 +15,6 @@
 <p align="center"> <img src=https://64.media.tumblr.com/70891a17f64966954e96bbefa833f32d/81bdf654311aa928-90/s1280x1920/9b61c8bef61d92149255ca5ceeea06890af19267.gifv> </p>
 <div align="center">
 
-  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ; [Rentry](https://rentry.co/chronos-vampire) ; [Strawpage](https://oui-oui-baguette.straw.page/)
+  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ; [Rentry](https://rentry.co/chronos-vampire) ; [Strawpage](https://chronosrebirth-vantaandmafioso.straw.page/)
 
 </div>
