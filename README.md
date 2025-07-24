@@ -18,5 +18,7 @@
   [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) ; [Strawpage](https://chronosrebirth-vantaandmafioso.straw.page/)
 
 </div>
+
+<p align="center"> 18/06/09 — 24/07/25 🕊️ </p>
 <!--
 --!>
