@@ -5,7 +5,7 @@
   [Modify by Lemon Demon](https://www.youtube.com/watch?v=uvxRD7mEfuU)
 
 </div>
-<p align="center"> <img src=https://komarev.com/ghpvc/?username=dr-vanta&color=green&abbreviated=true&style=flat-square&label=Vantacorp+Followers> </p>
+<p align="center"> <img src=https://komarev.com/ghpvc/?username=dr-vanta&color=277087&abbreviated=true&style=flat-square&label=Vantacorp+Followers> </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled914_20250903175740.png></p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled906_20250902100135.png> </p>
 <p align="center"> <img height=55 src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled907_20250902095415.png> 
