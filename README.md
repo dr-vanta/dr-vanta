@@ -9,7 +9,7 @@
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled914_20250903175740.png width=720></p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled906_20250902100135.png> </p>
 <p align="center"> <img height=55 src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled907_20250902095415.png> 
-    Vanta/Megan <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled911_20250902102023.png height=25> 6teen <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled910_20250902101727.png height=20> Maltese-Albanian (learning spanish) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled909_20250902101608.png height=20> MBTI : INFP 
+    Vanta/Megan <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled911_20250902102023.png height=25> 6teen <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled910_20250902101727.png height=20> Maltese-Albanian (learning spanish) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled909_20250902101608.png height=20> MBTI : INTP-T 
 </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled906_20250902100135.png>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled905_20250902095216.png> </p>
