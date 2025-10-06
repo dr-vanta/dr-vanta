@@ -1,11 +1,10 @@
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled905_20250902094336.png> </p>
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?lines=My+God,+I'm+so+lonely,+so+I+open+the+window;To+hear+sounds+of+people;To+hear+sounds+of+people;Venus,+planet+of+love,+was+destroyed+by+global+warming;Did+its+people+want+too+much,+too?;Did+its+people+want+too+much?;And+I+don't+want+your+pity,+I+just+want+somebody+near+me;Guess+I'm+a+coward,+I+just+want+to+feel+alright;And+I+know+no+one+will+save+me,+I+just+need+someone+to+kiss;Give+me+one+good+honest+kiss+and+I'll+be+alright;Nobody,+nobody,+nobody,+nobody,+nobody;Ooh,+nobody,+nobody,+nobody;I've+been+big+and+small+and+big+and+small+and+big+and+small+again;And+still+nobody+wants+me;Still,+nobody+wants+me;And+I+know+no+one+will+save+me,+I'm+just+asking+for+a+kiss;Give+me+one+good+movie+kiss+and+I'll+be+alright;Nobody,+nobody,+nobody,+nobody,+nobody;Ooh,+nobody,+nobody,+nobody,+nobody,+nobody;Nobody,+nobody,+nobody,+nobody;Nobody,+nobody,+nobody,+nobody;Nobody,+nobody,+nobody,+nobody;Nobody,+nobody,+nobody;Nobody,+no-;&font=Barrio&center=true&width=1080&height=50&color=277087&duration=4000&pause=1000"> </p>
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?lines=I+have+waited+for+the+day;To+send+this+greedy+wolf+away;Now+the+magic+is+my+salvation;Gather+close+in+my+protection;We...+will...+stand+for+Everfree!;Behold+the+beauty+of+nature+in+all+its+glory;No+need+to+fear+the+vultures+at+the+door;Right+here+you+have+me+to+protect+you;Within+these+walls+of+thorns;Forever+free,+forevermore!;They+have+come+into+our+domain;Here+to+seal+our+camp+in+chains;But+we+have+held+it+for+generations;This+is+just+a+complication;We...+will...+stand+for+Everfree!;Trust+in+me,+this+is+for+your+own+good;Don't+be+afraid,+nature+is+our+friend;All+of+this+beauty+that+surrounds+us;Every+lovely+bloom+designed+to+defend;Let+them+come,+just+let+them+try!;I'm+not+about+to+say+goodbye!;This+camp+will+be+here+throughout+the+ages;Written+into+the+history+pages;We...+will...+stand+for+Everfree!;&font=Barrio&center=true&width=1080&height=50&color=277087&duration=4000&pause=1000"> </p>
 <div align="center">
   
-  [Nobody by Mitski](https://www.youtube.com/watch?v=qooWnw5rEcI)
+  [We Will Stand For Everfree by My Little Pony](https://www.youtube.com/watch?v=cbwJyXnlMes)
 
 </div>
-<p align="center"><sub><sup>I heavily relate to this song, it's not even funny anymore.</sup></sub></p>
 <p align="center"> <img src=https://komarev.com/ghpvc/?username=dr-vanta&color=277087&abbreviated=true&style=flat-square&label=Vantacorp+Followers> </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled914_20250903175740.png width=720></p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled906_20250902100135.png> </p>
@@ -31,4 +30,12 @@
   [Modify by Lemon Demon](https://www.youtube.com/watch?v=uvxRD7mEfuU)
 
 </div>
+
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?lines=My+God,+I'm+so+lonely,+so+I+open+the+window;To+hear+sounds+of+people;To+hear+sounds+of+people;Venus,+planet+of+love,+was+destroyed+by+global+warming;Did+its+people+want+too+much,+too?;Did+its+people+want+too+much?;And+I+don't+want+your+pity,+I+just+want+somebody+near+me;Guess+I'm+a+coward,+I+just+want+to+feel+alright;And+I+know+no+one+will+save+me,+I+just+need+someone+to+kiss;Give+me+one+good+honest+kiss+and+I'll+be+alright;Nobody,+nobody,+nobody,+nobody,+nobody;Ooh,+nobody,+nobody,+nobody;I've+been+big+and+small+and+big+and+small+and+big+and+small+again;And+still+nobody+wants+me;Still,+nobody+wants+me;And+I+know+no+one+will+save+me,+I'm+just+asking+for+a+kiss;Give+me+one+good+movie+kiss+and+I'll+be+alright;Nobody,+nobody,+nobody,+nobody,+nobody;Ooh,+nobody,+nobody,+nobody,+nobody,+nobody;Nobody,+nobody,+nobody,+nobody;Nobody,+nobody,+nobody,+nobody;Nobody,+nobody,+nobody,+nobody;Nobody,+nobody,+nobody;Nobody,+no-;&font=Barrio&center=true&width=1080&height=50&color=277087&duration=4000&pause=1000"> </p>
+<div align="center">
+  
+  [Nobody by Mitski](https://www.youtube.com/watch?v=qooWnw5rEcI)
+
+</div>
+<p align="center"><sub><sup>I heavily relate to this song, it's not even funny anymore.</sup></sub></p>
 --!>
