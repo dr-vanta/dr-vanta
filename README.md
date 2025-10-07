@@ -1,16 +1,16 @@
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=64FCFF&duration=2500&pause=1000&lines=Vanta+Log+1"> </p>
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=277087&duration=2500&pause=1000&lines=%E2%80%9CI+often+reflect+on+the+tales+my+grandfather+told+me+when+I+was+young.;Fantastical+stories+of+how+the+Soul+Stream+and+Soul+Crystals+were+created.;His+tale+has+been+passed+down+through+our+family+for+generations.%E2%80%9D;%E2%80%9CMy+fascination+with+this+legend+is+what+led+to+where+I+am+now.;I+will+show+the+world+what+I+can+do.;I+will+discover+the+true+potential+of+the+Soul+Crystals.%E2%80%9D"> </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled905_20250902094336.png> </p>
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?lines=I+have+waited+for+the+day;To+send+this+greedy+wolf+away;Now+the+magic+is+my+salvation;Gather+close+in+my+protection;We...+will...+stand+for+Everfree!;Behold+the+beauty+of+nature+in+all+its+glory;No+need+to+fear+the+vultures+at+the+door;Right+here+you+have+me+to+protect+you;Within+these+walls+of+thorns;Forever+free,+forevermore!;They+have+come+into+our+domain;Here+to+seal+our+camp+in+chains;But+we+have+held+it+for+generations;This+is+just+a+complication;We...+will...+stand+for+Everfree!;Trust+in+me,+this+is+for+your+own+good;Don't+be+afraid,+nature+is+our+friend;All+of+this+beauty+that+surrounds+us;Every+lovely+bloom+designed+to+defend;Let+them+come,+just+let+them+try!;I'm+not+about+to+say+goodbye!;This+camp+will+be+here+throughout+the+ages;Written+into+the+history+pages;We...+will...+stand+for+Everfree!;&font=Barrio&center=true&width=1080&height=50&color=277087&duration=2500&pause=1000"> </p>
-<div align="center">
-  
-  [We Will Stand For Everfree by My Little Pony](https://www.youtube.com/watch?v=cbwJyXnlMes)
-
-</div>
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=64FCFF&duration=2500&pause=1000&lines=Vanta+Log+2"> </p>
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=277087&duration=2500&pause=1000&lines=%E2%80%9CToday's+tests+were+a+success.+We+finally+brought+life+to+a+Loomian+that+I+have+named+%22Mutagon%22.;A+Soul+Crystal+implanted+directly+into+its+body+seems+to+have+given+it+life+as+I+had+expected.%E2%80%9D;%E2%80%9CDespite+finally+achieving+one+of+my+greatest+goals%2C+I+worry.+This+new+life-form+seems+anxious%2C+and+it+has+a+will+of+its+own.;This+is+something+I+did+not+account+for.+More+testing+will+determine+what+we+do+next.;Money+is+also+getting+short%2C+and+I+am+worried+at+this+rate+I+will+be+unable+to+fund+further+development."> </p>
 <p align="center"> <img src=https://komarev.com/ghpvc/?username=dr-vanta&color=277087&abbreviated=true&style=flat-square&label=Vantacorp+Followers> </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled914_20250903175740.png width=720></p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled906_20250902100135.png> </p>
 <p align="center"> <img height=55 src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled907_20250902095415.png> 
     Vanta/Megan <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled911_20250902102023.png height=25> 6teen <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled910_20250902101727.png height=20> Maltese-Albanian (learning spanish) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled909_20250902101608.png height=20> MBTI : INTP-T 
 </p>
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=64FCFF&duration=2500&pause=1000&lines=Vanta+Log+3"> </p>
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=277087&duration=2500&pause=1000&lines=%E2%80%9CMutagon+escaped+our+testing+facility+last+night+and+fled+into+the+nearby+woods.;This+proves+that+it+is+incapable+of+being+controlled+or+even+compelled.%E2%80%9D;%E2%80%9CDuring+its+escape%2C+it+ran+across+a+highway+and+caused+a+terrible+car+accident.;The+accident+left+a+teenage+girl+without+her+parents%2C+and+herself%2C+severely+injured.;Words+cannot+describe+the+turmoil+this+single+event+has+stirred+within+my+soul.;But+I+must+press+on%2C+for+I+know+that+one+day+I+will+be+able+to+make+a+difference+in+this+world.;Fortunately%2C+nobody+witnessed+the+incident%2C+and+the+police+report+mentions+nothing+of+Vantacorp+or+Mutagon.%E2%80%9D;%E2%80%9CWe+dispatched+a+special+team+to+locate+and+detain+Mutagon.;Bringing+new+Loomians+to+life+has+little+purpose+if+they+can't+obey+simple+commands.;In+the+wake+of+this+devasting+series+of+events%2C+I+have+created+a+new+plan.+It+may+eventually+save+my+small+company.;There+may+also+be+a+way+to+make+a+little+restitution+for+the+damage+caused+by+Mutagon.%E2%80%9D"> </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled906_20250902100135.png>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled905_20250902095216.png> </p>
 <div align="center">
@@ -19,6 +19,8 @@
 
 </div>
 
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=64FCFF&duration=2500&pause=1000&lines=Vanta+Log+X"> </p>
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=277087&duration=2500&pause=1000&lines=%E2%80%9CIt+has+been+a+little+over+ten+years+since+the+accident.;My+plan+to+restart+my+company+was+a+success.+Today+is+actually+the+tenth+anniversary+of+POLUT+Corp.%E2%80%9D;%E2%80%9CThanks+to+the+revenue+from+our+technology+department's+advanced+cyber+gear%2C;funding+for+my+newest+projects+has+been+steady.;Fabricating+%22partially+organic%2C%22+i.e.+biomechanical%2C+Loomians+is+our+greatest+accomplishment.;These+Loomians+are+designed%2C+manufactured%2C+and+programmed+to+be+obedient.;They+serve+different+roles+that+will+help+clean+up+the+unfortunate%2C+messy+by-products+of+developing+our+cyber+tech.%E2%80%9D;%E2%80%9CAfter+enough+successful+trials+with+these+artificial+Loomians%2C;I+will+finally+be+back+to+work+on+creating+a+stronger%2C+this+time+obedient%2C+life-form.;I+believe+it+will+elevate+this+company+to+even+higher+heights.%E2%80%9D;%E2%80%9CIn+the+wake+of+my+success%2C+I+sometimes+remember+my+failure+all+those+years+ago.;That...+thing+is+now+locked+away+deep+within+the+earth%2C+in+a+place+which+I+will+never+have+to+set+foot+again.;My+failure+can+finally+be+put+behind+me%2C+as+I+continue+to+bless+this+fallen+world+with+my+magnificent+inventions.%E2%80%9D"> </p>
 
 <!--
 <p align="center"> 18/06/09 — 24/07/25 🕊️ </p>
@@ -38,4 +40,11 @@
 
 </div>
 <p align="center"><sub><sup>I heavily relate to this song, it's not even funny anymore.</sup></sub></p>
+
+<p align="center">  <img src="https://readme-typing-svg.demolab.com/?lines=I+have+waited+for+the+day;To+send+this+greedy+wolf+away;Now+the+magic+is+my+salvation;Gather+close+in+my+protection;We...+will...+stand+for+Everfree!;Behold+the+beauty+of+nature+in+all+its+glory;No+need+to+fear+the+vultures+at+the+door;Right+here+you+have+me+to+protect+you;Within+these+walls+of+thorns;Forever+free,+forevermore!;They+have+come+into+our+domain;Here+to+seal+our+camp+in+chains;But+we+have+held+it+for+generations;This+is+just+a+complication;We...+will...+stand+for+Everfree!;Trust+in+me,+this+is+for+your+own+good;Don't+be+afraid,+nature+is+our+friend;All+of+this+beauty+that+surrounds+us;Every+lovely+bloom+designed+to+defend;Let+them+come,+just+let+them+try!;I'm+not+about+to+say+goodbye!;This+camp+will+be+here+throughout+the+ages;Written+into+the+history+pages;We...+will...+stand+for+Everfree!;&font=Barrio&center=true&width=1080&height=50&color=277087&duration=2500&pause=1000"> </p>
+<div align="center">
+  
+  [We Will Stand For Everfree by My Little Pony](https://www.youtube.com/watch?v=cbwJyXnlMes)
+
+</div>
 --!>
