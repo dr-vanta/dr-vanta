@@ -15,7 +15,7 @@
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled905_20250902095216.png> </p>
 <div align="center">
 
-  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled908_20250902095542.png height=20> [Strawpage](https://chronosrebirth-vantaandmafioso.straw.page/) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled919_20250903211013.png height=25> [List of OCs that I have](https://chronsrebirth.notepin.co/undefined-ymktndyy) (IB goes to [@pastellcloudyy](https://github.com/pastellcloudyy))
+  [Pony Town Patreon](https://www.patreon.com/c/chronosrebirth/posts) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled908_20250902095542.png height=20> [Strawpage](https://drvanta-morethanone.straw.page/) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled919_20250903211013.png height=25> [List of OCs that I have](https://chronsrebirth.notepin.co/undefined-ymktndyy) (IB goes to [@pastellcloudyy](https://github.com/pastellcloudyy))
 
 </div>
 
