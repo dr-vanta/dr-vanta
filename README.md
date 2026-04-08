@@ -16,6 +16,7 @@
 <div align="center">
 
   [Sign my ata](https://chronosrebirth.atabook.org/) or [my space](https://spacehey.com/dr_vanta) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled908_20250902095542.png height=20> [Strawpage](https://drvanta-morethanone.straw.page/) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled919_20250903211013.png height=25> [List of OCs that I have](https://chronsrebirth.notepin.co/undefined-ymktndyy) (IB goes to [@pastellcloudyy](https://github.com/pastellcloudyy))
+  [Callout document](https://docs.google.com/document/d/1nzZmpnHggR6aLrGhpoJmbjFTbwGqAC62DsZJq5kFyrU/edit?usp=sharing)
 
 </div>
 
