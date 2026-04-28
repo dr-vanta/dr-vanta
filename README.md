@@ -27,4 +27,4 @@
 <br>
 <br>
 <p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=25&size=20&color=64FCFF&duration=2500&pause=1000&multiline=true&repeat=false&lines=Vanta+Log+???"> </p>
-<p align="center">  <img src="https://readme-typing-svg.herokuapp.com?font=Barrio&size=20&duration=2500&pause=1000&height=30&color=277087&center=true&width=2160&lines=%E2%80%9CHe+won't+LISTEN.;WHY+won't+he-+LISTEN%3F%E2%80%9D;%E2%80%9CTHIS+friendship+is+ALL+I+HAVE...;YOU'RE+risking+MY+mental+health+for+YOURSELF.%E2%80%9D+/dir"> </p>
+<p align="center">  <img src="https://readme-typing-svg.herokuapp.com?font=Barrio&size=20&duration=2500&pause=1000&height=30&color=277087&center=true&width=2160&lines=%E2%80%9CI+want...%E2%80%9D;%E2%80%9CHair+like...;Hands+like...;Fingers+that+curl+in+the+cold+like+YOURS.%E2%80%9D;%E2%80%9CI+WANT.%E2%80%9D;%E2%80%9CEYES+TO+STARE;AND+TO+CRY;WHEN+I'M+FEELING+SCARED+LIKE;YOU.%E2%80%9D"> </p>
