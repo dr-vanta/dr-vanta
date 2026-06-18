@@ -15,7 +15,7 @@
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1409_20260618210015.png> </p>
 <div align="center">
 
-  [Sign my ata](https://chronosrebirth.atabook.org/) or [my space](https://spacehey.com/dr_vanta) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled908_20250902095542.png height=20> [Rentry](https://rentry.co/drvanta-clockwork) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled919_20250903211013.png height=25> [List of OCs that I have](https://chronsrebirth.notepin.co/undefined-ymktndyy) (IB goes to [@pastellcloudyy](https://github.com/pastellcloudyy))
+  [Sign my ata](https://chronosrebirth.atabook.org/) or [my space](https://spacehey.com/dr_vanta) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled908_20250902095542.png height=20> [Rentry](https://rentry.co/drvanta-clockwork) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1417_20260619002401.png height=25> [List of OCs that I have](https://chronsrebirth.notepin.co/undefined-ymktndyy) (IB goes to [@pastellcloudyy](https://github.com/pastellcloudyy))
 
 </div>
 
