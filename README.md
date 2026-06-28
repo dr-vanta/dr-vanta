@@ -21,3 +21,9 @@
 
 <p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=DF1B0C&duration=2500&pause=1000&&multiline=true&repeat=false&lines=Vanta+Log+X"> </p>
 <p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=C40002&duration=2500&pause=1000&lines=%E2%80%9CIt+has+been+a+little+over+ten+years+since+the+accident.;My+plan+to+restart+my+company+was+a+success.+Today+is+actually+the+tenth+anniversary+of+POLUT+Corp.%E2%80%9D;%E2%80%9CThanks+to+the+revenue+from+our+technology+department's+advanced+cyber+gear%2C;funding+for+my+newest+projects+has+been+steady.;Fabricating+%22partially+organic%2C%22+i.e.+biomechanical%2C+Loomians+is+our+greatest+accomplishment.;These+Loomians+are+designed%2C+manufactured%2C+and+programmed+to+be+obedient.;They+serve+different+roles+that+will+help+clean+up+the+unfortunate%2C+messy+by-products+of+developing+our+cyber+tech.%E2%80%9D;%E2%80%9CAfter+enough+successful+trials+with+these+artificial+Loomians%2C;I+will+finally+be+back+to+work+on+creating+a+stronger%2C+this+time+obedient%2C+life-form.;I+believe+it+will+elevate+this+company+to+even+higher+heights.%E2%80%9D;%E2%80%9CIn+the+wake+of+my+success%2C+I+sometimes+remember+my+failure+all+those+years+ago.;That...+thing+is+now+locked+away+deep+within+the+earth%2C+in+a+place+which+I+will+never+have+to+set+foot+again.;My+failure+can+finally+be+put+behind+me%2C+as+I+continue+to+bless+this+fallen+world+with+my+magnificent+inventions.%E2%80%9D"> </p>
+
+<div align="center">
+
+[Click here for something funny](https://www.youtube.com/watch?v=k09oZkwqQJM)
+
+</div>
