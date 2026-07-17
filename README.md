@@ -1,4 +1,5 @@
-<div align="center">
+<center><h1> best viewed on laptops/tablets </h1></center>
+<center>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1409_20260618210010.png width=1080 height=200> </p>
 <img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1410_20260717171213.png" width=450>
 ‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=red&style=plastic&label=Vantacorp+Followers>
@@ -34,4 +35,4 @@ $${\color{#aa0c00}dr.}$$ $${\color{#DF1B0C}vanta}$$ <sub>or</sub> $${\color{#DF1
     </table>    
 </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1409_20260618210015.png width=1080 height=200> </p>
-</div>
+</center>
