@@ -1,29 +1,38 @@
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=DF1B0C&duration=2500&pause=1000&&multiline=true&repeat=false&lines=Vanta+Log+1"> </p>
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=C40002&duration=2500&pause=1000&lines=%E2%80%9CI+often+reflect+on+the+tales+my+grandfather+told+me+when+I+was+young.;Fantastical+stories+of+how+the+Soul+Stream+and+Soul+Crystals+were+created.;His+tale+has+been+passed+down+through+our+family+for+generations.%E2%80%9D;%E2%80%9CMy+fascination+with+this+legend+is+what+led+to+where+I+am+now.;I+will+show+the+world+what+I+can+do.;I+will+discover+the+true+potential+of+the+Soul+Crystals.%E2%80%9D"> </p>
+<div align="center">
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1409_20260618210010.png> </p>
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=DF1B0C&duration=2500&pause=1000&&multiline=true&repeat=false&lines=Vanta+Log+2"> </p>
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=C40002&duration=2500&pause=1000&lines=%E2%80%9CToday's+tests+were+a+success.+We+finally+brought+life+to+a+Loomian+that+I+have+named+%22Mutagon%22.;A+Soul+Crystal+implanted+directly+into+its+body+seems+to+have+given+it+life+as+I+had+expected.%E2%80%9D;%E2%80%9CDespite+finally+achieving+one+of+my+greatest+goals%2C+I+worry.+This+new+life-form+seems+anxious%2C+and+it+has+a+will+of+its+own.;This+is+something+I+did+not+account+for.+More+testing+will+determine+what+we+do+next.;Money+is+also+getting+short%2C+and+I+am+worried+at+this+rate+I+will+be+unable+to+fund+further+development."> </p>
-<p align="center"> <img src=https://komarev.com/ghpvc/?username=dr-vanta&color=red&style=plastic&label=Vantacorp+Followers> </p>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1410_20260618211717.png width=420></p>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1411_20260618211815.png width=120> </p>
-<p align="center"> <img height=55 src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1412_20260619001036.png> 
-    Bandhur Vanta <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1413_20260619001151.png height=15> Our body is 7teen <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png height=20> Maltese-Albanian <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1414_20260619001229.png height=20> MBTI : INTP-T 
+<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1410_20260717171213.png" width=450>
+‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=red&style=plastic&label=Vantacorp+Followers>
+<p align="right">
+    <table>
+        <tr>
+            <td>
+                <br>
+                <br>
+                <div align="center">
+                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=180&height=50&size=12&color=C40002&duration=1500&pause=500&repeat=false&lines=+;%E2%80%9CDon't+be+scared.%E2%80%9D;+;%E2%80%9CI've+done+this+before.%E2%80%9D;+;%E2%80%9CShow+me+your+teeth.%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
+                    <br>
+                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎
+$${\color{#aa0c00}dr.}$$ $${\color{#DF1B0C}vanta}$$ <sub>or</sub> $${\color{#DF1B0C}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1413_20260619001151.png?v=1784302568372" width=20> $${\color{#540600}he}$$ <i>/</i> $${\color{#540600}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
+                    <br>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1417_20260619002401.png?v=1784302583459" width=20> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#c3002d}𓂃}$$<img src="https://64.media.tumblr.com/9b0972f7775d627b12dcb47c96649f4e/e2f51ed33e92b91a-9e/s250x400/68461349182d376b5c577a36180eeaf0dbd09535.gifv" width=120></img>
+                    <br>
+                    $${\color{#}INTP}$$<sup>-T</sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1414_20260619001229.png?v=1784302597628" width=20> <ins>mlt</ins><sub>+alb</sub>
+                    <br>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1411_20260618211815.png?v=1784302618843" height=15>
+                    <br>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1415_20260619001312.png?v=1784302578011" width=20>$${\color{#a23030}—}$$
+                </div>
+                <div align="center">
+                    
+[rntry](https://rentry.co/drvanta-clockwork) [新book](https://chronosrebirth.atabook.org/) [guns.lol](https://guns.lol/dr._vanta)
+                </div>
+                <div align="center">
+                [<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO)
+                </div>
+            </td>
+        </tr>
+    </table>    
 </p>
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=DF1B0C&duration=2500&pause=1000&&multiline=true&&multiline=true&repeat=false&lines=Vanta+Log+3"> </p>
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=C40002&duration=2500&pause=1000&lines=%E2%80%9CMutagon+escaped+our+testing+facility+last+night+and+fled+into+the+nearby+woods.;This+proves+that+it+is+incapable+of+being+controlled+or+even+compelled.%E2%80%9D;%E2%80%9CDuring+its+escape%2C+it+ran+across+a+highway+and+caused+a+terrible+car+accident.;The+accident+left+a+teenage+girl+without+her+parents%2C+and+herself%2C+severely+injured.;Words+cannot+describe+the+turmoil+this+single+event+has+stirred+within+my+soul.;But+I+must+press+on%2C+for+I+know+that+one+day+I+will+be+able+to+make+a+difference+in+this+world.;Fortunately%2C+nobody+witnessed+the+incident%2C+and+the+police+report+mentions+nothing+of+Vantacorp+or+Mutagon.%E2%80%9D;%E2%80%9CWe+dispatched+a+special+team+to+locate+and+detain+Mutagon.;Bringing+new+Loomians+to+life+has+little+purpose+if+they+can't+obey+simple+commands.;In+the+wake+of+this+devasting+series+of+events%2C+I+have+created+a+new+plan.+It+may+eventually+save+my+small+company.;There+may+also+be+a+way+to+make+a+little+restitution+for+the+damage+caused+by+Mutagon.%E2%80%9D"> </p>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1411_20260618211815.png width=120> </p>
+<img align="center" src="https://file.garden/Z1wsLskJxRiY2oPJ/New%20Project%20(22).png?v=1784302534213" width=360>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1409_20260618210015.png> </p>
-<div align="center">
-
-  [Sign my ata](https://chronosrebirth.atabook.org/) or [my space](https://spacehey.com/dr_vanta) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1415_20260619001312.png height=20> [Rentry](https://rentry.co/drvanta-clockwork) <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1417_20260619002401.png height=25> [List of OCs that I have](https://chronsrebirth.notepin.co/undefined-ymktndyy) (IB goes to [@pastellcloudyy](https://github.com/pastellcloudyy))<br><br>[Awareness Document](https://docs.google.com/document/d/11Yt5EyBVSaLj2tLWhMN7sExA4TOXTcRlKSO9IxX8Cq4/edit?tab=t.0)
-
-</div>
-
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=DF1B0C&duration=2500&pause=1000&&multiline=true&repeat=false&lines=Vanta+Log+X"> </p>
-<p align="center">  <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=2160&height=50&size=35&color=C40002&duration=2500&pause=1000&lines=%E2%80%9CIt+has+been+a+little+over+ten+years+since+the+accident.;My+plan+to+restart+my+company+was+a+success.+Today+is+actually+the+tenth+anniversary+of+POLUT+Corp.%E2%80%9D;%E2%80%9CThanks+to+the+revenue+from+our+technology+department's+advanced+cyber+gear%2C;funding+for+my+newest+projects+has+been+steady.;Fabricating+%22partially+organic%2C%22+i.e.+biomechanical%2C+Loomians+is+our+greatest+accomplishment.;These+Loomians+are+designed%2C+manufactured%2C+and+programmed+to+be+obedient.;They+serve+different+roles+that+will+help+clean+up+the+unfortunate%2C+messy+by-products+of+developing+our+cyber+tech.%E2%80%9D;%E2%80%9CAfter+enough+successful+trials+with+these+artificial+Loomians%2C;I+will+finally+be+back+to+work+on+creating+a+stronger%2C+this+time+obedient%2C+life-form.;I+believe+it+will+elevate+this+company+to+even+higher+heights.%E2%80%9D;%E2%80%9CIn+the+wake+of+my+success%2C+I+sometimes+remember+my+failure+all+those+years+ago.;That...+thing+is+now+locked+away+deep+within+the+earth%2C+in+a+place+which+I+will+never+have+to+set+foot+again.;My+failure+can+finally+be+put+behind+me%2C+as+I+continue+to+bless+this+fallen+world+with+my+magnificent+inventions.%E2%80%9D"> </p>
-
-<div align="center">
-
-[Click here for something funny](https://www.youtube.com/watch?v=k09oZkwqQJM)
-
 </div>
