@@ -10,7 +10,9 @@
                 <br>
                 <br>
                 <div align="center">
-                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=180&height=50&size=12&color=C40002&duration=1500&pause=500&repeat=false&lines=+;%E2%80%9CDon't+be+scared.%E2%80%9D;+;%E2%80%9CI've+done+this+before.%E2%80%9D;+;%E2%80%9CShow+me+your+teeth.%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
+                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=360&height=50&size=12&color=C40002&duration=1500&pause=500&repeat=false&lines=+;%E2%80%9CI'm+a+sick+bitch+and+I+like+freak+sex%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
+                    <br>
+                    $${\color{#aa0c00}/lyr}$$
                     <br>
                     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎
 $${\color{#aa0c00}dr.}$$ $${\color{#DF1B0C}vanta}$$ <sub>or</sub> $${\color{#DF1B0C}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1413_20260619001151.png?v=1784302568372" width=20> $${\color{#540600}he}$$ <i>/</i> $${\color{#540600}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
