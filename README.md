@@ -27,7 +27,7 @@ $${\color{#aa0c00}dr.}$$ $${\color{#DF1B0C}vanta}$$ <sub>or</sub> $${\color{#DF1
                 </div>
                 <div align="center">
                     
-[rntry](https://rentry.co/drvanta-clockwork) [新book](https://chronosrebirth.atabook.org/) [guns.lol](https://guns.lol/dr._vanta)
+[rntry](https://rentry.co/drvanta-clockwork) [新book](https://chronosrebirth.atabook.org/) [guns.lol](https://guns.lol/dr._vanta) [strwpg](https://drvanta-azure.straw.page/)
                 </div>
                 <div align="center">
                 [<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO)
