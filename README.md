@@ -10,7 +10,7 @@
                 <br>
                 <br>
                 <div align="center">
-                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=240&height=50&size=10&color=C40002&duration=1500&pause=2500&repeat=false&lines=+;%E2%80%9CEm+không+sao;Sao+anh+không+cứ+tiếp+tục+hỏi+thăm+em+thế+nào;Người+nào+biết+lúc+em+quay+mặt+đi;Em+chẳng+nghĩ+suy+điều+chi;Hãy+đi+theo+và+giữ+đôi+tay+em%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
+                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=240&height=50&size=12&color=C40002&duration=1500&pause=2500&repeat=false&lines=+;%E2%80%9CEm+không+sao;Sao+anh+không+cứ+tiếp+tục+hỏi+thăm+em+thế+nào;Người+nào+biết+lúc+em+quay+mặt+đi;Em+chẳng+nghĩ+suy+điều+chi;Hãy+đi+theo+và+giữ+đôi+tay+em%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
                     <br>
                     $${\color{#aa0c00}/lyr}$$
                     <br>
