@@ -49,3 +49,11 @@ $${\color{#205197}dr.}$$ $${\color{#285FAA}vanta}$$ <sub>or</sub> $${\color{#7D9
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1497_20260801100944.png width=1080> </p>
 </div>
 </center>
+<div align="center">
+    <details>
+        <summary>     </summary>
+         
+thank you [pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media)
+    
+</details>
+</div>
