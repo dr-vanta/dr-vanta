@@ -12,7 +12,7 @@
                 <br>
                 <br>
                 <div align="center">
-                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=240&height=50&size=10&color=245AA4&duration=1500&pause=2500&repeat=false&lines=+;%E2%80%9CEm+không+sao;Sao+anh+không+cứ+tiếp+tục+hỏi+thăm+em+thế+nào;Người+nào+biết+lúc+em+quay+mặt+đi;Em+chẳng+nghĩ+suy+điều+chi;Hãy+đi+theo+và+giữ+đôi+tay+em%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
+                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=240&height=50&size=10&color=245AA4&duration=1500&pause=2500&repeat=false&lines=+;%E2%80%9CTouch+this+like+braces%E2%80%9D;%E2%80%9CLooseleaf+up,+two+blunts,+I+face+'em;Walk+in+the+club,+dip+out,+no+traces%E2%80%9D;%E2%80%9CGivenchy+sleeve,+got+laces%E2%80%9D;%E2%80%9CFuck+these+pages,+I+make+bread;They+hate+it,+daily+payments%E2%80%9D;%E2%80%9CKnow+I+don't+wait+up+for+nobody;But+I+swear+that+I+ain't+impatient%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
                     <br>
                     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎
 $${\color{#205197}dr.}$$ $${\color{#285FAA}vanta}$$ <sub>or</sub> $${\color{#7D9BB5}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/tumblr_136082e5da61f376d5bf2bf46f75c1d7_a8a32c03_540.webp" width=20> $${\color{#1B4584}he}$$ <i>/</i> $${\color{#1B4584}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
