@@ -1,8 +1,8 @@
 <center><h1> best viewed on laptops/tablets </h1></center>
 <center>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1409_20260618210010.png width=1080 height=200> </p>
-<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1410_20260717171213.png" width=450>
-‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=red&style=plastic&label=Vantacorp+Followers>
+<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1497_20260801100853.png width=1080> </p>
+<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1495_20260801093723.png" width=300>
+‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=blue&style=plastic&label=Vantacorp+Followers>
 <p align="right">
     <table>
         <tr>
@@ -10,31 +10,39 @@
                 <br>
                 <br>
                 <div align="center">
-                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=240&height=50&size=10&color=C40002&duration=1500&pause=2500&repeat=false&lines=+;%E2%80%9CEm+không+sao;Sao+anh+không+cứ+tiếp+tục+hỏi+thăm+em+thế+nào;Người+nào+biết+lúc+em+quay+mặt+đi;Em+chẳng+nghĩ+suy+điều+chi;Hãy+đi+theo+và+giữ+đôi+tay+em%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
-                    <br>
-                    $${\color{#aa0c00}/lyr}$$
+                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=240&height=50&size=10&color=245AA4&duration=1500&pause=2500&repeat=false&lines=+;%E2%80%9CEm+không+sao;Sao+anh+không+cứ+tiếp+tục+hỏi+thăm+em+thế+nào;Người+nào+biết+lúc+em+quay+mặt+đi;Em+chẳng+nghĩ+suy+điều+chi;Hãy+đi+theo+và+giữ+đôi+tay+em%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
                     <br>
                     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎
-$${\color{#aa0c00}dr.}$$ $${\color{#DF1B0C}vanta}$$ <sub>or</sub> $${\color{#DF1B0C}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1413_20260619001151.png?v=1784302568372" width=20> $${\color{#540600}he}$$ <i>/</i> $${\color{#540600}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
+$${\color{#205197}dr.}$$ $${\color{#285FAA}vanta}$$ <sub>or</sub> $${\color{#7D9BB5}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/tumblr_136082e5da61f376d5bf2bf46f75c1d7_a8a32c03_540.webp" width=20> $${\color{#1B4584}he}$$ <i>/</i> $${\color{#1B4584}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1417_20260619002401.png?v=1784302583459" width=20> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#c3002d}𓂃}$$<img src="https://64.media.tumblr.com/9b0972f7775d627b12dcb47c96649f4e/e2f51ed33e92b91a-9e/s250x400/68461349182d376b5c577a36180eeaf0dbd09535.gifv" width=120></img>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Tumblr_l_683775880577037.jpg" width=30> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#193C72}𓂃}$$ <img src="https://64.media.tumblr.com/25f920eed324702785ea1c1d02a412fa/80a70175fddb4763-43/s540x810/700d9e1c37ed5f8b6057ae15cfd71d6d92876cd4.gifv" width=120></img>
                     <br>
-                    $${\color{#}INTP}$$<sup>-T</sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1414_20260619001229.png?v=1784302597628" width=20> <ins>mlt</ins><sub>+alb</sub>
+                    $${\color{#}INTP}$$<sup>-T</sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/tumblr_307c089be4c4961eb55d497191a490a7_fe2f1cf8_400.png" width=20> <ins>mlt</ins><sub>+alb</sub>
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1411_20260618211815.png?v=1784302618843" height=15>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/tumblr_2c885b5ebb20a0a1558401eef413ab3b_c67ad3e6_2048.png" height=15>
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1415_20260619001312.png?v=1784302578011" width=20>$${\color{#a23030}—}$$
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Horn_Rimmed_Glasses.webp" width=20>$${\color{#c3002d}—}$$
                 </div>
-                <div align="center">
+                
+<div align="center">
+                <table>
+                    <tr>
+                        <td>
                     
-[rntry](https://rentry.co/drvanta-clockwork) [新book](https://chronosrebirth.atabook.org/) [guns.lol](https://guns.lol/dr._vanta) [strwpg](https://drvanta-azure.straw.page/)
+[<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1498_20260801103200.png" width=25>](https://rentry.co/drvanta-clockwork) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1498_20260801103223.png" width=25>](https://chronosrebirth.atabook.org/) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1498_20260801103258.png" width=25>](https://guns.lol/dr._vanta) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1498_20260801103310.png" width=25>](https://drvanta-azure.straw.page/)
+</td>
+</tr>
+</table>
                 </div>
-                <div align="center">
-                [<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO)
+                
+<div align="center">
+                
+[<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO)
                 </div>
             </td>
         </tr>
-    </table>    
+    </table>
+    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1496_20260801095403.png" width=100>
 </p>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1409_20260618210015.png width=1080 height=200> </p>
+<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1497_20260801100944.png width=1080> </p>
 </center>
