@@ -21,7 +21,7 @@ $${\color{#205197}dr.}$$ $${\color{#285FAA}vanta}$$ <sub>or</sub> $${\color{#7D9
                     <br>
                     $${\color{#}INTP}$$<sup>-T</sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/tumblr_307c089be4c4961eb55d497191a490a7_fe2f1cf8_400.png" width=20> <ins>mlt</ins><sub>+alb</sub>
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/tumblr_2c885b5ebb20a0a1558401eef413ab3b_c67ad3e6_2048.png" height=15>
+                    <center>$${\color{#5c89bd}◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$</center>
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Horn_Rimmed_Glasses.webp" width=20>$${\color{#c3002d}—}$$
                 </div>
