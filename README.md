@@ -39,7 +39,7 @@ $${\color{#205197}dr.}$$ $${\color{#285FAA}vanta}$$ <sub>or</sub> $${\color{#7D9
                 
 <div align="center">
                 
-[<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO)
+[<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [three](https://github.com/a-dead-plate)
                 </div>
             </td>
         </tr>
