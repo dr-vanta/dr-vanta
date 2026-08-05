@@ -53,7 +53,7 @@ $${\color{#205197}dr.}$$ $${\color{#285FAA}vanta}$$ <sub>or</sub> $${\color{#7D9
     <details>
         <summary>     </summary>
          
-thank you [pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media)
+thank you [pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media), [pt-friendships](https://github.com/pt-friendships) (ty for putting my message for those peeps <3)
     
 </details>
 </div>
