@@ -6,7 +6,7 @@
 <img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1495_20260801093723.png" width=300>
 ‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=blue&style=plastic&label=Vantacorp+Followers>
 <p align="right">
-    <table>
+    <table style="width:75%">
         <tr>
             <td>
                 <br>
