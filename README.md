@@ -3,7 +3,7 @@
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1497_20260801100853.png width=1080> </p>
 <div align="center">
     
-<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1495_20260801093723.png" width=300>
+<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1536_20260813230444.png" width=423>
 ‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=red&style=plastic&label=Vantacorp+Followers>
 <p align="right">
     <table style="width:100%">
@@ -31,7 +31,7 @@ $${\color{#205197}dr.}$$ $${\color{#285FAA}vanta}$$ <sub>or</sub> $${\color{#7D9
                     <tr>
                         <td>
                     
-[<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1498_20260801103200.png" width=25>](https://rentry.co/drvanta-clockwork) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1498_20260801103223.png" width=25>](https://chronosrebirth.atabook.org/) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1498_20260801103258.png" width=25>](https://guns.lol/dr._vanta) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1498_20260801103310.png" width=25>](https://drvanta-azure.straw.page/)
+[<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1541_20260814125537.png" width=25>](https://rentry.co/drvanta-clockwork) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1541_20260814125632.png" width=25>](https://chronosrebirth.atabook.org/) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1541_20260814125637.png" width=25>](https://guns.lol/dr._vanta) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1541_20260814125641.png" width=25>](https://drvanta-azure.straw.page/)
 </td>
 </tr>
 </table>
@@ -44,7 +44,7 @@ $${\color{#205197}dr.}$$ $${\color{#285FAA}vanta}$$ <sub>or</sub> $${\color{#7D9
             </td>
         </tr>
     </table>
-    <a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1522_20260802235445.png width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1496_20260801095403.png" width=100>
+    <a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260814142948.png width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1540_20260814120855.png" width=100>
 </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1497_20260801100944.png width=1080> </p>
 </div>
