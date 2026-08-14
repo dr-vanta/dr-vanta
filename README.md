@@ -1,6 +1,6 @@
 <center><h1> best viewed on laptops/tablets </h1></center>
 <center>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1497_20260801100853.png width=1080> </p>
+<p align="center"> <img src=https://64.media.tumblr.com/4749776cfe43fafc146801e8ef1fb847/b57e84787013c208-5b/s2048x3072/c2d713aa360ffb5f1dc25501c57ec7b0032be5e5.pnj width=1080></img> </p>
 <div align="center">
     
 <img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1536_20260813230444.png" width=423>
@@ -15,15 +15,15 @@
                     <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=240&height=50&size=10&color=B41B54&duration=1500&pause=2500&repeat=false&lines=%E2%80%9CI+want+skin+that+burns.%E2%80%9D;%E2%80%9CLungs+that+ache%E2%80%9D;%E2%80%9CA+chest+that+rises+when+the+morning+breaks%E2%80%9D;%E2%80%9CI+want+blood+to+spill;and+to+bruise;when+I'm+standing+still+like+you.%E2%80%9D;%E2%80%9CI+want...%E2%80%9D;%E2%80%9CWords+that+shake%E2%80%9D;%E2%80%9CLips+that+fail%E2%80%9D;%E2%80%9CA+voice+that+splinters+when+it+tells+the+tale%E2%80%9D;%E2%80%9CI+want...%E2%80%9D;%E2%80%9CDreams+to+keep;and+to+lose;when+I+fall+asleep+like+you.%E2%80%9D;%E2%80%9CI+want+years+to+waste%E2%80%9D;%E2%80%9CTime+to+mourn%E2%80%9D;%E2%80%9CA+name+that+someone+whispered+when+I'm+born%E2%80%9D;%E2%80%9CI+want...;death+to+fear+and+to+face+when+its+finally+here%E2%80%9D;%E2%80%9CLike+you.%E2%80%9D"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
                     <br>
                     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎
-$${\color{#D7627E}dr.}$$ $${\color{#CD305D}vanta}$$ <sub>or</sub> $${\color{#821451}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/tumblr_136082e5da61f376d5bf2bf46f75c1d7_a8a32c03_540.webp" width=20> $${\color{#B41B54}he}$$ <i>/</i> $${\color{#B41B54}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
+$${\color{#D7627E}dr.}$$ $${\color{#CD305D}vanta}$$ <sub>or</sub> $${\color{#821451}eric}$$ <img src="https://64.media.tumblr.com/5470d95c0951ffe6ff5231def9433612/7e7b2fff53111b45-ef/s75x75_c1/7e494691613bb28bc2edff9a843aaf8f3753374f.gifv" width=20></img> $${\color{#B41B54}he}$$ <i>/</i> $${\color{#B41B54}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Tumblr_l_683775880577037.jpg" width=30> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#193C72}𓂃}$$ <img src="https://64.media.tumblr.com/25f920eed324702785ea1c1d02a412fa/80a70175fddb4763-43/s540x810/700d9e1c37ed5f8b6057ae15cfd71d6d92876cd4.gifv" width=120></img>
+                    <img src="https://64.media.tumblr.com/8ccd4ab3779c4bf0a0c261f03ed76a7e/9114ec66a0db8d5c-f0/s75x75_c1/e6597aa2667b274b9489ba8a67d4dd902d144e42.gifv" width=30></img> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#821451}𓂃}$$ <img src="https://64.media.tumblr.com/7d2c1b4e0d06691b077941e7df46cc42/fe7995c759d4e626-a1/s250x400/d0c7713a71e4f6c0203b151d94c1199ebd7d843b.gifv" width=120></img>
                     <br>
-                    $${\color{#}INTP}$$<sup>-T</sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/tumblr_307c089be4c4961eb55d497191a490a7_fe2f1cf8_400.png" width=20> <ins>mlt</ins><sub>+alb</sub>
+                    $${\color{#}INTP}$$<sup>-T</sup> <img src="https://64.media.tumblr.com/49b2082fb6a6199627f0ed7198103361/1bf8221d27fdef63-72/s250x400/ecccc68e305b6c277eea9767f422b377026d40ea.pnj" width=20> <ins>mlt</ins><sub>+alb</sub>
                     <br>
                     <center>$${\color{#601250}◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$</center>
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Horn_Rimmed_Glasses.webp" width=20>$${\color{#C82155}—}$$
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/latest" width=20>$${\color{#C82155}—}$$
                 </div>
                 
 <div align="center">
@@ -46,7 +46,7 @@ $${\color{#D7627E}dr.}$$ $${\color{#CD305D}vanta}$$ <sub>or</sub> $${\color{#821
     </table>
     <a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260814142948.png width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1540_20260814120855.png" width=100>
 </p>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1497_20260801100944.png width=1080> </p>
+<p align="center"> <img src=https://64.media.tumblr.com/4749776cfe43fafc146801e8ef1fb847/b57e84787013c208-5b/s2048x3072/c2d713aa360ffb5f1dc25501c57ec7b0032be5e5.pnj width=1080></img> </p>
 </div>
 </center>
 <div align="center">
