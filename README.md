@@ -4,7 +4,7 @@
 <div align="center">
     
 <img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1495_20260801093723.png" width=300>
-‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=blue&style=plastic&label=Vantacorp+Followers>
+‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=red&style=plastic&label=Vantacorp+Followers>
 <p align="right">
     <table style="width:100%">
         <tr>
