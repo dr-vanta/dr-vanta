@@ -21,7 +21,7 @@ $${\color{#D7627E}dr.}$$ $${\color{#CD305D}vanta}$$ <sub>or</sub> $${\color{#821
                     <br>
                     $${\color{#}INTP}$$<sup>-T</sup> <img src="https://64.media.tumblr.com/49b2082fb6a6199627f0ed7198103361/1bf8221d27fdef63-72/s250x400/ecccc68e305b6c277eea9767f422b377026d40ea.pnj" width=20> <ins>mlt</ins><sub>+alb</sub>
                     <br>
-                    <center>$${\color{#601250}◞◟　𓎟𓎟　 ✦　　𓎟𓎟　　◞◟}$$</center>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1540_20260814120855.png" width=150>
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/latest" width=20>$${\color{#C82155}—}$$
                 </div>
@@ -44,7 +44,8 @@ $${\color{#D7627E}dr.}$$ $${\color{#CD305D}vanta}$$ <sub>or</sub> $${\color{#821
             </td>
         </tr>
     </table>
-    <a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260814142948.png width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1540_20260814120855.png" width=100>
+    ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260814142948.png width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </p>
 <p align="center"> <img src=https://64.media.tumblr.com/4749776cfe43fafc146801e8ef1fb847/b57e84787013c208-5b/s2048x3072/c2d713aa360ffb5f1dc25501c57ec7b0032be5e5.pnj width=1080></img> </p>
 </div>
