@@ -45,7 +45,7 @@ $${\color{#D7627E}dr.}$$ $${\color{#CD305D}vanta}$$ <sub>or</sub> $${\color{#821
         </tr>
     </table>
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260814142948.png width=75 align="right"></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260814142948.png width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </p>
 <p align="center"> <img src=https://64.media.tumblr.com/4749776cfe43fafc146801e8ef1fb847/b57e84787013c208-5b/s2048x3072/c2d713aa360ffb5f1dc25501c57ec7b0032be5e5.pnj width=1080></img> </p>
