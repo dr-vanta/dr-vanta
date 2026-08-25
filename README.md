@@ -56,6 +56,37 @@ $${\color{#D7627E}dr.}$$ $${\color{#CD305D}vanta}$$ <sub>or</sub> $${\color{#821
         <summary>     </summary>
          
 thank you [pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media), [pt-friendships](https://github.com/pt-friendships) (ty for putting my message for those peeps <3)
+<details>
+        <summary>$${\color{#CD305D}what\ I\ gotta\ say\ to\ losers}$$</summary>
+    <br>
+    if you're a friend and want a heartfelt message, let me know! :~D
+    <br>
+            <details>
+                <summary><a href="https://github.com/pastellcloudyy">pastel</a></summary>
+                hey there, hun! I hope you know how much I appreciate you - every time I would get a notification from you, there would always be a smile on my face, even back when we were just friends. our relationship grew so strong that it led to where we are today, and I only hope that our bond grows stronger. you were there whenever I would rant; you'd be there to listen to me whenever I was in a new fandom (and eventually drag you into it); you'd also be there to write our partner projects together and listen to whatever concepts I had. I love you for being there whenever it mattered; I love our conversations together, and overall my feelings for you grew stronger. the fact that we never had any sort of argument just proves it. sure, we disagree on some things, but it never led to anything too major. keep and always be yourself around me; it's what I love about you the most <3
+            </details>
+            <details>
+                <summary><a href="https://github.com/R0CKETLAUNCHER">se</a><a href=https://github.com/weavnest>b</a></summary>
+    your presence is always welcome within our group; don't be scared to reach out to us! :~] we love talking to you, okay? okay
+            </details>
+            <details>
+                <summary><a href="https://github.com/echoing-777s">za</a><a href="https://github.com/Medspace-kiss">ph</a></summary>
+                although shy to talk to me, always know that I am always up for a conversation with you, no matter the situation. I hope there is nothing but good in your path toward the future.
+            </details>
+            <details>
+                <summary><a href="https://github.com/viimsey">vivi</a></summary>
+                we love you, dad! every time you come online, we always make memories together :~] throughout the years, we shared our laughs, our sad moments, and practically everything you'd expect from a healthy relationship. I hope that you know that there is hope for you, no matter what your conflicting thoughts say.
+            </details>
+            <details>
+                <summary><a href="https://github.com/star-employee">zixuan</a></summary> 
+                hello, dear sister, did you think I would forget about you? I for sure would never forget about you! you're always talking, and I like that about you. I am forever proud that you made other friends (outside our circle) as well. we had each other's backs throughout the years, and let's keep it that way, okay? okay. I love you platonically sister, okay? okay. I'll bite your ankles at 3 AM, watch out.
+            </details>
+            <details>
+                <summary><a href="https://github.com/earl-grey-mp4">earl</a></summary> 
+                a dear friend of mine ever since 2019, from meeting in bloody animal jam to where we are now, I have valued our friendship ever since the beginning, and I can only pray you know that. we'll always stick by each other's backs no matter what happens to us. our friendship is goated, twin! :~D <br><small>hazelcappuccino canon trust</small>
+            </details>
+        </summary>
+</details>
     
 </details>
 </div>
