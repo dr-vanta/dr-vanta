@@ -66,7 +66,7 @@ thank you [pt-players](https://github.com/pt-players), [title-town](https://gith
                 hey there, hun! I hope you know how much I appreciate you - every time I would get a notification from you, there would always be a smile on my face, even back when we were just friends. our relationship grew so strong that it led to where we are today, and I only hope that our bond grows stronger. you were there whenever I would rant; you'd be there to listen to me whenever I was in a new fandom (and eventually drag you into it); you'd also be there to write our partner projects together and listen to whatever concepts I had. I love you for being there whenever it mattered; I love our conversations together, and overall my feelings for you grew stronger. the fact that we never had any sort of argument just proves it. sure, we disagree on some things, but it never led to anything too major. keep and always be yourself around me; it's what I love about you the most <3
             </details>
             <details>
-                <summary><a href="https://github.com/R0CKETLAUNCHER">se</a><a href=https://github.com/weavnest>b</a></summary>
+                <summary><a href="https://github.com/R0CKETLAUNCHER">se</a><a href="https://github.com/weavenest">b</a></summary>
     your presence is always welcome within our group; don't be scared to reach out to us! :~] we love talking to you, okay? okay
             </details>
             <details>
