@@ -3,7 +3,7 @@
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/shits.pnj width=1080></img> </p>
 <div align="center">
     
-<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1621_20260912184657.png" width=423>
+<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1621_20260912224812.png" width=423>
 ‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=333E69&style=plastic&label=Vantacorp+Followers>
 <p align="right">
     <table style="width:100%">
@@ -44,7 +44,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
             </td>
         </tr>
     </table>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260814142948.png width=75></a>ㅤ<a href="https://repris.org/banny-and-bon"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260908181313.png" width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1626_20260912232408.png width=75></a>ㅤ<a href="https://repris.org/banny-and-bon"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1628_20260912232906.png" width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/shits.pnj width=1080></img> </p>
 </div>
@@ -53,7 +53,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
     <details>
         <summary>     </summary>
 
-<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1543_20260908183023.png" align="right" width=125>
+<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1629_20260912235312.png" align="right" width=125>
          
 thank you [pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media), [pt-friendships](https://github.com/pt-friendships) (ty for putting my message for those peeps <3), [pt-heavyfickin](https://github.com/pt-heavyfictkin), [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall), [forsakentown](https://github.com/forsakentown)
 <br>
