@@ -31,7 +31,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
                     <tr>
                         <td>
                     
-[<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1622_20260912184725.png" width=30>](https://fluffle.cc/drvanta-clockwork) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1623_20260912184754.png" width=30>](https://chronosrebirth.atabook.org/) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1624_20260912184817.png" width=30>](https://guns.lol/dr._vanta) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1625_20260912184851.png" width=30>](https://drvanta-azure.straw.page/)
+[<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1622_20260912224914.png" width=30>](https://fluffle.cc/drvanta-clockwork) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1623_20260912224931.png" width=30>](https://chronosrebirth.atabook.org/) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1624_20260912224957.png" width=30>](https://guns.lol/dr._vanta) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1625_20260912224851.png" width=30>](https://drvanta-azure.straw.page/)
 </td>
 </tr>
 </table>
