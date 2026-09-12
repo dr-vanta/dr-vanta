@@ -21,7 +21,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
                     <br>
                     $${\color{#}INTP}$$<sup>-T</sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> <ins>always</ins> <sub>iwc</sub>
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1619_20260912184950.png" width=150>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1619_20260912184950.png" width=200>
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/meep.gifv" width=20>$${\color{#333E69}—}$$
                 </div>
