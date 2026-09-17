@@ -1,4 +1,4 @@
-<center><h1> best viewed on laptops/tablets </h1></center>
+<center><h1> best viewed on laptops </h1></center>
 <center>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/shits.pnj width=1080></img> </p>
 <div align="center">
