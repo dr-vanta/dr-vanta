@@ -19,7 +19,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/moop.gifv" width=20></img> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#141B3B}𓂃}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/mrow.gifv" width=120></img>
                     <br>
-                    $${\color{#}INTP}$$<sup>-T</sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> <ins>always</ins> <sub>iwc</sub>
+                    $${\color{#}INTP}$$<sup>-T</sup> <i>3w4</i> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> <ins>always</ins> <sub>iwc</sub>
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1619_20260912184950.png" width=200>
                     <br>
