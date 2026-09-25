@@ -19,7 +19,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/moop.gifv" width=20></img> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#141B3B}𓂃}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/mrow.gifv" width=120></img>
                     <br>
-                    $${\color{#}INTP}$$<sup>-T</sup> <i>3w4</i> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> <ins>always</ins> <sub>iwc</sub>
+                    $${\color{#}INTP}$$<sup>-T</sup> <i>3w4</i> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> iwec <sub>for now please</sub>
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1619_20260912184950.png" width=200>
                     <br>
@@ -66,7 +66,7 @@ thank you [pt-players](https://github.com/pt-players), [title-town](https://gith
     <br>
             <details>
                 <summary><a href="https://github.com/pastellcloudyy">pastel</a></summary>
-                hey there, hun! I hope you know how much I appreciate you - every time I would get a notification from you, there would always be a smile on my face, even back when we were just friends. our relationship grew so strong that it led to where we are today, and I only hope that our bond grows stronger. you were there whenever I would rant; you'd be there to listen to me whenever I was in a new fandom (and eventually drag you into it); you'd also be there to write our partner projects together and listen to whatever concepts I had. I love you for being there whenever it mattered; I love our conversations together, and overall my feelings for you grew stronger. the fact that we never had any sort of argument just proves it. sure, we disagree on some things, but it never led to anything too major. keep and always be yourself around me; it's what I love about you the most <3
+                hey there, hun! I hope you know how much I appreciate you - every time I would get a notification from you, there would always be a smile on my face, even back when we were just friends. our relationship grew so strong that it led to where we are today, and I only hope that our bond grows stronger. you were there whenever I would rant; you'd be there to listen to me whenever I was in a new fandom (and eventually drag you into it); you'd also be there to write our partner projects together and listen to whatever concepts I had. I love you for being there whenever it mattered; I love our conversations together, and overall my feelings for you grew stronger. the fact that we never had any sort of argument just proves it. sure, we disagree on some things, but it never led to anything too major. keep being yourself around me; it's what I love about you the most <3
             </details>
             <details>
                 <summary><a href="https://github.com/R0CKETLAUNCHER">se</a><a href="https://github.com/weavenest">b</a></summary>
@@ -74,11 +74,11 @@ thank you [pt-players](https://github.com/pt-players), [title-town](https://gith
             </details>
             <details>
                 <summary><a href="https://github.com/echoing-777s">za</a><a href="https://github.com/Medspace-kiss">ph</a></summary>
-                although shy to talk to me, always know that I am always up for a conversation with you, no matter the situation. I hope there is nothing but good in your path toward the future.
+                although shy to talk to me, always know that I am always up for a conversation with you, no matter the situation. I hope only good things are in your path toward the future.
             </details>
             <details>
                 <summary><a href="https://github.com/viimsey">vivi</a></summary>
-                we love you, dad! every time you come online, we always make memories together :~] throughout the years, we shared our laughs, our sad moments, and practically everything you'd expect from a healthy relationship. I hope that you know that there is hope for you, no matter what your conflicting thoughts say.
+                we love you, dad! every time you come online, we make memories together :~] Over the years, we shared our laughs, our sad moments, and practically everything you'd expect from a healthy relationship. I hope that you know that there is hope for you, no matter what your conflicting thoughts say.
             </details>
             <details>
                 <summary><a href="https://github.com/star-employee">zixuan</a></summary> 
@@ -93,3 +93,4 @@ thank you [pt-players](https://github.com/pt-players), [title-town](https://gith
     
 </details>
 </div>
+<!-------- <ins>always</ins> <sub>iwc</sub> -------------->
