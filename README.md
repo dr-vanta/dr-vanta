@@ -17,7 +17,7 @@
                     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎
 $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141B3B}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Metal_Type_Icon.webp" width=20></img> $${\color{#615C83}he}$$ <i>/</i> $${\color{#615C83}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/moop.gifv" width=20></img> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#141B3B}𓂃}$$  <img src="https://moods.imood.com/display/uname-dr_vanta/imood.gif" />
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/moop.gifv" width=20></img> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#141B3B}𓂃}$$  <a href="https://www.imood.com/users/dr_vanta"><img src="https://moods.imood.com/display/uname-dr_vanta/imood.gif" /></a>
                     <br>
                     $${\color{#}INTP}$$<sup>-T</sup> <i>3w4</i> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> iwec <sub>for now</sub>
                     <br>
