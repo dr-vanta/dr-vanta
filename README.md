@@ -12,7 +12,7 @@
                 <br>
                 <br>
                 <div align="center">
-                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=300&height=50&size=10&color=615C83&duration=1500&pause=2500&repeat=false&lines=Reaching+out+to+the+unknown;I+feel+like+I'm+not+alone;Light+and+dark+and+shadow;Secrets+from+long+ago;From+the+earth,+you+do+rise;Beautiful+and+all-wise;Cast+your+spell+upon+me;In+my+heart,+I+do+see;Ancient+love+from+below;You+and+I+are+whole"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
+                    <img src="https://readme-typing-svg.demolab.com/?font=Barrio&center=true&width=300&height=50&size=10&color=615C83&duration=1500&pause=2500&repeat=true&lines=Shattered+dreams,+all+laid+to+waste;A+thousand+eyes+upon+my+face;All+I've+ever+been+shall+be+cast+into+the+tides+of+blood;And,+though,+I'm+strewn+apart;Soon,+I'll+feel+you+in+my+arms;Again,+my+friend,+so+I'll...;Wade,+along+these+waves+now...;'Til+the+day+I+find+my+solace"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1416_20260619001408.png?v=1784302601723" width=20>
                     <br>
                     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎
 $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141B3B}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Metal_Type_Icon.webp" width=20></img> $${\color{#615C83}he}$$ <i>/</i> $${\color{#615C83}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
