@@ -39,12 +39,12 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
                 
 <div align="center">
                 
-[<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [three](https://github.com/a-dead-plate) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> <ins>four</ins> <sub>doesn't have github</sub>
+[<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [three](https://github.com/a-dead-plate) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> <ins>four</ins>
                 </div>
             </td>
         </tr>
     </table>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
-<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1626_20260912232408.png width=75></a>ㅤ<a href="https://repris.org/banny-and-bon"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1628_20260912232906.png" width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1626_20260912232408.png width=75></a>ㅤ<a href="https://repris.org/banny-and-bon"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1628_20260912232906.png" width=75></a>ㅤ<a href="https://rentry.co/tbd-anomalies"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled30_20260929105355.png" width=75></a>ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤ
 </p>
 <p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/shits.pnj width=1080></img> </p>
 </div>
