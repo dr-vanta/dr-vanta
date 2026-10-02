@@ -19,7 +19,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/moop.gifv" width=20></img> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#141B3B}𓂃}$$  <a href="https://www.imood.com/users/dr_vanta"><img src="https://moods.imood.com/display/uname-dr_vanta/imood.gif" /></a>
                     <br>
-                    $${\color{#}INTP}$$<sup>-T</sup> <i>3w4</i> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> iwec <sub>for now</sub>
+                    $${\color{#}INTP}$$<sup>-T</sup> <i>3w4</i> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> <ins>always</ins> <sub>iwc</sub>
                     <br>
                     <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1619_20260912184950.png" width=200>
                     <br>
@@ -51,11 +51,11 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
 </center>
 <div align="center">
     <details>
-        <summary>     </summary>
+        <summary>  $${\color{#3C416D}thank\ you\ (award\ accounts\ I\ am\ on)}$$   </summary>
 
 <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1629_20260912235312.png" align="right" width=125>
          
-thank you [pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media), [pt-friendships](https://github.com/pt-friendships) (ty for putting my message for those peeps <3), [pt-heavyfickin](https://github.com/pt-heavyfictkin), [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall), [forsakentown](https://github.com/forsakentown), [choco-town](https://github.com/choco-town), [music-town](https://github.com/music-town), [pt-of-forsaken](https://github.com/pt-of-forsaken), [pt-icon](https://github.com/pt-icon), [pt-ship-nominations](https://github.com/pt-ship-nominations) (me and him ♡), [kaotown](https://github.com/kaotown), [paw-town](https://github.com/paw-town), [casinotown](https://github.com/casinotown), [daggerstruckmage](https://github.com/daggerstruckmage)
+[pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media), [pt-friendships](https://github.com/pt-friendships) (ty for putting my message for those peeps <3), [pt-heavyfickin](https://github.com/pt-heavyfictkin), [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall), [forsakentown](https://github.com/forsakentown), [choco-town](https://github.com/choco-town), [music-town](https://github.com/music-town), [pt-of-forsaken](https://github.com/pt-of-forsaken), [pt-icon](https://github.com/pt-icon), [pt-ship-nominations](https://github.com/pt-ship-nominations) (me and him ♡), [kaotown](https://github.com/kaotown), [paw-town](https://github.com/paw-town), [casinotown](https://github.com/casinotown), [daggerstruckmage](https://github.com/daggerstruckmage)
 <br>
 <br>
 <br>
@@ -73,7 +73,7 @@ thank you [pt-players](https://github.com/pt-players), [title-town](https://gith
     your presence is always welcome within our group; don't be scared to reach out to us! :~] we love talking to you, okay? okay
             </details>
             <details>
-                <summary><a href="https://github.com/echoing-777s">za</a><a href="https://github.com/Medspace-kiss">ph</a></summary>
+                <summary><a href="https://github.com/cupiidshot">za</a><a href="https://github.com/Medspace-kiss">ph</a></summary>
                 although shy to talk to me, always know that I am always up for a conversation with you, no matter the situation. I hope only good things are in your path toward the future.
             </details>
             <details>
@@ -92,5 +92,21 @@ thank you [pt-players](https://github.com/pt-players), [title-town](https://gith
 </details>
     
 </details>
+<details>
+        <summary>$${\color{#3C416D}friends\ list}$$</summary>
+    $${\color{#262F5C}awesome\ partner}$$: <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>
+    <br>
+    $${\color{#283458}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, samuel, charlie
+    <br>
+    $${\color{#161C36}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a>, etc.
+    <br>
+    $${\color{#131E35}my\ kids}$$: <a href="https://github.com/cupiidshot">cupiidshot</a>, <a href="https://github.com/self-preservation8">self-preservation8</a>, <a href="https://github.com/NoOneVinlandAmerican">NoOneVinlandAmerican</a>, <a href="https://github.com/ragingcalamity">ragingcalamity</a>, <a href="https://github.com/chizuru8">chizuru8</a>, <a href="https://github.com/Sunnyzarts">Sunnyzarts</a> and more
+    <br>
+    $${\color{#0F1627}oomfs}$$: <a href="https://github.com/R0CKETLAUNCHER">R0CKETLAUNCHER</a>, <a href="https://github.com/MochiDachi">MochiDachi</a>, <a href="https://github.com/SomethingWasHere">SomethingWasHere</a>, <a href="https://github.com/lovelymmj">lovelymmj</a>, <a href="https://github.com/N1TEB0I">N1TEB0I</a>, <a href="https://github.com/no1bestPisschugger">no1bestPisschugger</a>, <a href="https://github.com/UnluckiestGamble">UnluckiestGamble</a>, <a href="https://github.com/Chemicalshot">Chemicalshot</a>, <a href="https://github.com/Gamblersi">Gamblersi</a>, <a href="https://github.com/SONNELLINOENTHUSIAST">SONNELLINOENTHUSIAST</a> (fat bum), <a href="https://github.com/ESSH-DiamonGold">ESSH-DiamonGold</a>, <a href="https://github.com/putmetorestimnotyourstosave">putmetorestimnotyourstosave</a>, <a href="https://github.com/garbagenoise">garbagenoise</a>, <a href="https://github.com/cutewidget">cutewidget</a>, <a href="https://github.com/Jsmn-T">Jsmn-T</a>, <a href="https://github.com/Atychiphxbia">Atychiphxbia</a>, <a href="https://github.com/ArtistsLeafRibbon">ArtistsLeafRibbon</a>, <a href="https://github.com/solarx-luvr">solarx-luvr</a>, <a href="https://github.com/joyfulplayer">joyfulplayer</a>, <a href="https://github.com/forgottenfeelings">forgottenfeelings</a>, <a href="https://github.com/rationex">rationex</a>, <a href="https://github.com/deathriders">deathriders</a>, <a href="https://github.com/lietpol">lietpol</a>, <a href="https://github.com/St2rZs">St2rZs</a>, <a href="https://github.com/Bloodymuch">Bloodymuch</a>, <a href="https://github.com/zEtern4lFus3">zEtern4lFus3</a>, <a href="https://github.com/LostInMyDreams">LostInMyDreams</a>, <a href="https://github.com/naturalharmoniaa">naturalharmoniaa</a>
+    <br>
+    $${\color{#534D79}whisper\ to\ be\ added!}$$
+    <br>
+    $${\color{#4E4977}thank\ you\ for\ spending\ time\ with\ me!\ <3}$$
+</details>
 </div>
-<!-------- <ins>always</ins> <sub>iwc</sub> -------------->
+<!--------  -------------->
