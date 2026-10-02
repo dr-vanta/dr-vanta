@@ -94,7 +94,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
 </details>
 <details>
         <summary>$${\color{#3C416D}friends\ list}$$</summary>
-    <img src="https://i.pinimg.com/736x/75/2a/e6/752ae6bbb3b10ea2600dd7356a835644.jpg" align="left" width=400>
+    <img src="https://i.pinimg.com/736x/75/2a/e6/752ae6bbb3b10ea2600dd7356a835644.jpg" align="left" width=450>
     Σ>―(〃°ω°〃)♡→ $${\color{#262F5C}awesome\ partner}$$: <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>
     <br>
     $${\color{#283458}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, samuel, charlie (•˕ •マⳊ
