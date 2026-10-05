@@ -4,7 +4,7 @@
 <div align="center">
     
 <img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1621_20260912224812.png" width=423>
-‎<img align="center" src=https://komarev.com/ghpvc/?username=dr-vanta&color=333E69&style=plastic&label=Vantacorp+Followers>
+‎<img align="center" src=https://hits.sh/github.com.svg?style=plastic&label=Vantacorp%20Followers&extraCount=15754&color=333E69&labelColor=141B3B>
 <p align="right">
     <table style="width:100%">
         <tr>
