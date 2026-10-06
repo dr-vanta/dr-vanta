@@ -1,10 +1,10 @@
 <center><h1> best viewed on laptops </h1></center>
 <center>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/shits.pnj width=1080></img> </p>
+<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/divider.gif width=1080></img> </p>
 <div align="center">
     
-<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1621_20260912224812.png" width=423>
-‎<img align="center" src=https://hits.sh/github.com.svg?style=plastic&label=Vantacorp%20Followers&extraCount=15754&color=333E69&labelColor=141B3B>
+<img align="left" src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/miku.gif" width=500>
+‎<img align="center" src=https://hits.sh/github.com.svg?style=plastic&label=Vantacorp%20Followers&extraCount=15754&color=AA5979&labelColor=D197AE>
 <p align="right">
     <table style="width:100%">
         <tr>
@@ -12,18 +12,18 @@
                 <br>
                 <br>
                 <div align="center">
-                    <img src="https://readme-typing-svg.herokuapp.com?font=arial&size=12&letterSpacing=-1px&duration=4000&pause=1000&color=615C83&center=true&width=300&lines=...%E3%85%A4%F0%9D%93%97ere%E3%85%A4comes%E3%85%A4a%E3%85%A4strange%E3%85%A4kind%E3%85%A4of%E3%85%A4%E2%80%9C%E3%85%A4%F0%9D%99%9D%F0%9D%99%9A%F0%9D%99%A7%F0%9D%99%A4%E3%80%82+%E2%80%9D;%F0%9D%93%9Don-formal%E3%85%A4stories%E3%85%A4that%E3%85%A4%F0%9D%99%AE%F0%9D%99%A4%F0%9D%99%AA%E3%85%A4know.;%F0%9D%93%93%F0%9D%97%BC%F0%9D%97%BB'%F0%9D%98%81%E3%85%A4%F0%9D%97%B4%F0%9D%97%B2%F0%9D%98%81%E3%85%A4%F0%9D%97%BA%F0%9D%97%B2%E3%85%A4%F0%9D%98%84%F0%9D%97%BF%F0%9D%97%BC%F0%9D%97%BB%F0%9D%97%B4%2C%E3%85%A4%F0%9D%98%86%F0%9D%97%BC%F0%9D%98%82'%F0%9D%97%B9%F0%9D%97%B9%E3%85%A4%F0%9D%98%81%F0%9D%97%BF%F0%9D%98%86%E3%85%A4%F0%9D%98%81%F0%9D%97%B5%F0%9D%97%B2%E3%85%A4%F0%9D%99%99%F0%9D%99%96%F0%9D%99%A7%F0%9D%99%A0%E3%85%A4%F0%9D%99%AC%F0%9D%99%96%F0%9D%99%AE%E3%80%82;%F0%9D%93%93on't%E3%85%A4get%E3%85%A4me%E3%85%A4wrong%2C%E3%85%A4it's%E3%85%A4not%E3%85%A4%F0%9D%99%AE%F0%9D%99%A4%F0%9D%99%AA%F0%9D%99%A7%E3%85%A4last%E3%85%A4day%E3%80%82;+;%E2%80%A6%E3%85%A4%F0%9D%93%90nd%E3%85%A4now%E3%85%A4it%E3%85%A4feels%E3%85%A4like%E3%85%A4%F0%9D%99%97%F0%9D%99%9A%F0%9D%99%9B%F0%9D%99%A4%F0%9D%99%A7%F0%9D%99%9A%2C;%F0%9D%93%98%E3%85%A4know%E3%85%A4you%E3%85%A4ask%E3%85%A4for%E3%85%A4%F0%9D%99%A2%F0%9D%99%A4%F0%9D%99%A7%F0%9D%99%9A%2C;%F0%9D%93%93%F0%9D%97%BC%F0%9D%97%BB'%F0%9D%98%81%E3%85%A4%F0%9D%97%B4%F0%9D%97%B2%F0%9D%98%81%E3%85%A4%F0%9D%97%BA%F0%9D%97%B2%E3%85%A4%F0%9D%98%84%F0%9D%97%BF%F0%9D%97%BC%F0%9D%97%BB%F0%9D%97%B4%2C%E3%85%A4%F0%9D%97%B5%F0%9D%97%B2%F0%9D%97%BF%F0%9D%97%B2'%F0%9D%98%80%E3%85%A4%F0%9D%98%81%F0%9D%97%B5%F0%9D%97%B2%E3%85%A4%F0%9D%99%A1%F0%9D%99%96%F0%9D%99%AC%E3%80%82"/>
+                    <img src="https://readme-typing-svg.herokuapp.com?font=arial&size=12&letterSpacing=-1px&duration=4000&pause=1000&color=CF94AB&center=true&width=300&lines=...%E3%85%A4%F0%9D%93%97ere%E3%85%A4comes%E3%85%A4a%E3%85%A4strange%E3%85%A4kind%E3%85%A4of%E3%85%A4%E2%80%9C%E3%85%A4%F0%9D%99%9D%F0%9D%99%9A%F0%9D%99%A7%F0%9D%99%A4%E3%80%82+%E2%80%9D;%F0%9D%93%9Don-formal%E3%85%A4stories%E3%85%A4that%E3%85%A4%F0%9D%99%AE%F0%9D%99%A4%F0%9D%99%AA%E3%85%A4know.;%F0%9D%93%93%F0%9D%97%BC%F0%9D%97%BB'%F0%9D%98%81%E3%85%A4%F0%9D%97%B4%F0%9D%97%B2%F0%9D%98%81%E3%85%A4%F0%9D%97%BA%F0%9D%97%B2%E3%85%A4%F0%9D%98%84%F0%9D%97%BF%F0%9D%97%BC%F0%9D%97%BB%F0%9D%97%B4%2C%E3%85%A4%F0%9D%98%86%F0%9D%97%BC%F0%9D%98%82'%F0%9D%97%B9%F0%9D%97%B9%E3%85%A4%F0%9D%98%81%F0%9D%97%BF%F0%9D%98%86%E3%85%A4%F0%9D%98%81%F0%9D%97%B5%F0%9D%97%B2%E3%85%A4%F0%9D%99%99%F0%9D%99%96%F0%9D%99%A7%F0%9D%99%A0%E3%85%A4%F0%9D%99%AC%F0%9D%99%96%F0%9D%99%AE%E3%80%82;%F0%9D%93%93on't%E3%85%A4get%E3%85%A4me%E3%85%A4wrong%2C%E3%85%A4it's%E3%85%A4not%E3%85%A4%F0%9D%99%AE%F0%9D%99%A4%F0%9D%99%AA%F0%9D%99%A7%E3%85%A4last%E3%85%A4day%E3%80%82;+;%E2%80%A6%E3%85%A4%F0%9D%93%90nd%E3%85%A4now%E3%85%A4it%E3%85%A4feels%E3%85%A4like%E3%85%A4%F0%9D%99%97%F0%9D%99%9A%F0%9D%99%9B%F0%9D%99%A4%F0%9D%99%A7%F0%9D%99%9A%2C;%F0%9D%93%98%E3%85%A4know%E3%85%A4you%E3%85%A4ask%E3%85%A4for%E3%85%A4%F0%9D%99%A2%F0%9D%99%A4%F0%9D%99%A7%F0%9D%99%9A%2C;%F0%9D%93%93%F0%9D%97%BC%F0%9D%97%BB'%F0%9D%98%81%E3%85%A4%F0%9D%97%B4%F0%9D%97%B2%F0%9D%98%81%E3%85%A4%F0%9D%97%BA%F0%9D%97%B2%E3%85%A4%F0%9D%98%84%F0%9D%97%BF%F0%9D%97%BC%F0%9D%97%BB%F0%9D%97%B4%2C%E3%85%A4%F0%9D%97%B5%F0%9D%97%B2%F0%9D%97%BF%F0%9D%97%B2'%F0%9D%98%80%E3%85%A4%F0%9D%98%81%F0%9D%97%B5%F0%9D%97%B2%E3%85%A4%F0%9D%99%A1%F0%9D%99%96%F0%9D%99%AC%E3%80%82"/>
                     <br>
                     ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ ‎
-$${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141B3B}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Metal_Type_Icon.webp" width=20></img> $${\color{#615C83}he}$$ <i>/</i> $${\color{#615C83}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
+$${\color{#D197AE}dr.}$$ $${\color{#CF94AB}vanta}$$ <sub>or</sub> $${\color{#CF94AB}eric}$$ <img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/fairy.png" width=20></img> $${\color{#CF94AB}he}$$ <i>/</i> $${\color{#CF94AB}him}$$                    ‎ ‎ ‎ ‎ ‎ ‎ ‎  ‎ ‎ ‎ ‎ 
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/moop.gifv" width=20></img> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#141B3B}𓂃}$$  <a href="https://www.imood.com/users/dr_vanta"><img src="https://moods.imood.com/display/uname-dr_vanta/fg-293463/bg-656287/imood.gif" /></a>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/star.gif" width=20></img> . <img src="https://64.media.tumblr.com/8e06662a7497613442d284c93f5c75a5/7b0286a18540dd76-62/s75x75_c1/1652c06637d07586436ca0f36b883904a637b10d.gifv" width=15></img><img src="https://64.media.tumblr.com/3a3ea39280a1a71a403f02e3ca2418ae/7b0286a18540dd76-ae/s75x75_c1/805123a90d1a8f1f364337070f17f3ae15428542.gifv" width=15></img> $${\color{#CF94AB}𓂃}$$  <a href="https://www.imood.com/users/dr_vanta"><img src="https://moods.imood.com/display/uname-dr_vanta/fg-CF94AB/bg-D197AE/imood.gif" /></a>
                     <br>
-                    $${\color{#}INTP}$$<sup>-T</sup> <i>3w4</i> <sup><i>so/sx3</i></sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/c745871320da82da3bffd4382443afc384801a45.gifv" width=20> <ins>always</ins> <sub>iwc</sub>
+                    $${\color{#}INTP}$$<sup>-T</sup> <i>3w4</i> <sup><i>so/sx3</i></sup> <img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/bow.gif" width=20> <ins>always</ins> <sub>iwc</sub>
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1619_20260912184950.png" width=200>
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/banner.gif" width=200>
                     <br>
-                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/meep.gifv" width=20>$${\color{#333E69}—}$$
+                    <img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/staff.gif" width=20>$${\color{#CF94AB}—}$$
                 </div>
                 
 <div align="center">
@@ -31,7 +31,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
                     <tr>
                         <td>
                     
-[<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1622_20260912224914.png" width=30>](https://fluffle.cc/drvanta-clockwork) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1623_20260912224931.png" width=30>](https://chronosrebirth.atabook.org/) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1624_20260912224957.png" width=30>](https://guns.lol/dr._vanta) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1625_20260912224851.png" width=30>](https://drvanta-azure.straw.page/)
+[<img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/button%201.png" width=30>](https://fluffle.cc/drvanta-clockwork) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/button%202.png" width=30>](https://chronosrebirth.atabook.org/) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/button%203.png" width=30>](https://guns.lol/dr._vanta) [<img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/button%204.png" width=30>](https://drvanta-azure.straw.page/)
 </td>
 </tr>
 </table>
@@ -44,14 +44,14 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
             </td>
         </tr>
     </table>
-<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1626_20260912232408.png width=75></a>ㅤ<a href="https://repris.org/banny-and-bon"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1628_20260912232906.png" width=75></a>ㅤ<a href="https://rentry.co/tbd-anomalies"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled30_20260929105355.png" width=75></a>ㅤㅤㅤㅤㅤㅤㅤ
+<a href="https://rentry.co/edgylords"><img src=https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/rentry%201.png width=75></a>ㅤ<a href="https://repris.org/banny-and-bon"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/page.png" width=75></a>ㅤ<a href="https://rentry.co/tbd-anomalies"><img src="https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/rentry%202.png" width=75></a>ㅤㅤㅤㅤㅤㅤㅤ
 </p>
-<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/shits.pnj width=1080></img> </p>
+<p align="center"> <img src=https://file.garden/Z1wsLskJxRiY2oPJ/retry%20now/divider.gif width=1080></img> </p>
 </div>
 </center>
 <div align="center">
     <details>
-        <summary>  $${\color{#3C416D}thank\ you\ (award\ accounts\ I\ am\ on)}$$   </summary>
+        <summary>  $${\color{#C4809B}thank\ you\ (award\ accounts\ I\ am\ on)}$$   </summary>
 
 <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1629_20260912235312.png" align="right" width=125>
          
@@ -60,7 +60,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
 <br>
 <br>
 <details>
-        <summary>$${\color{#293463}what\ I\ gotta\ say\ to\ losers}$$</summary>
+        <summary>$${\color{#CF94AB}what\ I\ gotta\ say\ to\ losers}$$</summary>
     <br>
     if you're a friend and want a heartfelt message, let me know! :~D
     <br>
@@ -93,16 +93,16 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
     
 </details>
 <details>
-        <summary>$${\color{#3C416D}friends\ list}$$</summary>
-    Σ>―(〃°ω°〃)♡→ $${\color{#262F5C}awesome\ partner}$$: <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>
+        <summary>$${\color{#C4809B}friends\ list}$$</summary>
+    Σ>―(〃°ω°〃)♡→ $${\color{#D197AE}awesome\ partner}$$: <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>
     <br>
-    $${\color{#283458}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, samuel, charlie (•˕ •マⳊ
+    $${\color{#C6849E}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, samuel, charlie (•˕ •マⳊ
     <br>
-    $${\color{#161C36}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a>, <a href="https://github.com/princessbunicorn">princessbunicorn</a>, etc. ૮₍ ´• ˕ •` ₎ა
+    $${\color{#BD7491}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a>, <a href="https://github.com/princessbunicorn">princessbunicorn</a>, etc. ૮₍ ´• ˕ •` ₎ა
     <br>
-    (／￣(ｴ)￣)／ $${\color{#131E35}my\ kids}$$: <a href="https://github.com/cupiidshot">cupiidshot</a>, <a href="https://github.com/self-preservation8">self-preservation8</a>, <a href="https://github.com/NoOneVinlandAmerican">NoOneVinlandAmerican</a>, <a href="https://github.com/ragingcalamity">ragingcalamity</a>, <a href="https://github.com/chizuru8">chizuru8</a>, <a href="https://github.com/Sunnyzarts">Sunnyzarts</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>
+    (／￣(ｴ)￣)／ $${\color{#B96F8C}my\ kids}$$: <a href="https://github.com/cupiidshot">cupiidshot</a>, <a href="https://github.com/self-preservation8">self-preservation8</a>, <a href="https://github.com/NoOneVinlandAmerican">NoOneVinlandAmerican</a>, <a href="https://github.com/ragingcalamity">ragingcalamity</a>, <a href="https://github.com/chizuru8">chizuru8</a>, <a href="https://github.com/Sunnyzarts">Sunnyzarts</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>
     <br>
-    $${\color{#0F1627}oomfs}$$: <a href="https://github.com/R0CKETLAUNCHER">R0CKETLAUNCHER</a>, <a href="https://github.com/MochiDachi">MochiDachi</a>, <a href="https://github.com/SomethingWasHere">SomethingWasHere</a>, <a href="https://github.com/lovelymmj">lovelymmj</a>, <a href="https://github.com/N1TEB0I">N1TEB0I</a>, <a href="https://github.com/no1bestPisschugger">no1bestPisschugger</a>, <a href="https://github.com/UnluckiestGamble">UnluckiestGamble</a>, <a href="https://github.com/Chemicalshot">Chemicalshot</a>, <a href="https://github.com/Gamblersi">Gamblersi</a>, <a href="https://github.com/SONNELLINOENTHUSIAST">SONNELLINOENTHUSIAST</a> (fat bum), <a href="https://github.com/ESSH-DiamonGold">ESSH-DiamonGold</a>, <a href="https://github.com/putmetorestimnotyourstosave">putmetorestimnotyourstosave</a>, <a href="https://github.com/garbagenoise">garbagenoise</a>, <a href="https://github.com/cutewidget">cutewidget</a>, <a href="https://github.com/Jsmn-T">Jsmn-T</a>, <a href="https://github.com/Atychiphxbia">Atychiphxbia</a>, <a href="https://github.com/ArtistsLeafRibbon">ArtistsLeafRibbon</a>, <a href="https://github.com/solarx-luvr">solarx-luvr</a>, <a href="https://github.com/joyfulplayer">joyfulplayer</a>, <a href="https://github.com/forgottenfeelings">forgottenfeelings</a>, <a href="https://github.com/rationex">rationex</a>, <a href="https://github.com/deathriders">deathriders</a>, <a href="https://github.com/lietpol">lietpol</a>, <a href="https://github.com/St2rZs">St2rZs</a>, <a href="https://github.com/Bloodymuch">Bloodymuch</a>, <a href="https://github.com/zEtern4lFus3">zEtern4lFus3</a>, <a href="https://github.com/LostInMyDreams">LostInMyDreams</a>, <a href="https://github.com/naturalharmoniaa">naturalharmoniaa</a>, <a href="https://github.com/DaninGH">DaninGH</a> ૮₍´˶• . • ⑅ ₎ა
+    $${\color{#B26584}oomfs}$$: <a href="https://github.com/R0CKETLAUNCHER">R0CKETLAUNCHER</a>, <a href="https://github.com/MochiDachi">MochiDachi</a>, <a href="https://github.com/SomethingWasHere">SomethingWasHere</a>, <a href="https://github.com/lovelymmj">lovelymmj</a>, <a href="https://github.com/N1TEB0I">N1TEB0I</a>, <a href="https://github.com/no1bestPisschugger">no1bestPisschugger</a>, <a href="https://github.com/UnluckiestGamble">UnluckiestGamble</a>, <a href="https://github.com/Chemicalshot">Chemicalshot</a>, <a href="https://github.com/Gamblersi">Gamblersi</a>, <a href="https://github.com/SONNELLINOENTHUSIAST">SONNELLINOENTHUSIAST</a> (fat bum), <a href="https://github.com/ESSH-DiamonGold">ESSH-DiamonGold</a>, <a href="https://github.com/putmetorestimnotyourstosave">putmetorestimnotyourstosave</a>, <a href="https://github.com/garbagenoise">garbagenoise</a>, <a href="https://github.com/cutewidget">cutewidget</a>, <a href="https://github.com/Jsmn-T">Jsmn-T</a>, <a href="https://github.com/Atychiphxbia">Atychiphxbia</a>, <a href="https://github.com/ArtistsLeafRibbon">ArtistsLeafRibbon</a>, <a href="https://github.com/solarx-luvr">solarx-luvr</a>, <a href="https://github.com/joyfulplayer">joyfulplayer</a>, <a href="https://github.com/forgottenfeelings">forgottenfeelings</a>, <a href="https://github.com/rationex">rationex</a>, <a href="https://github.com/deathriders">deathriders</a>, <a href="https://github.com/lietpol">lietpol</a>, <a href="https://github.com/St2rZs">St2rZs</a>, <a href="https://github.com/Bloodymuch">Bloodymuch</a>, <a href="https://github.com/zEtern4lFus3">zEtern4lFus3</a>, <a href="https://github.com/LostInMyDreams">LostInMyDreams</a>, <a href="https://github.com/naturalharmoniaa">naturalharmoniaa</a>, <a href="https://github.com/DaninGH">DaninGH</a> ૮₍´˶• . • ⑅ ₎ა
     <br>
     $${\color{#534D79}whisper\ to\ be\ added!}$$
     <br>
