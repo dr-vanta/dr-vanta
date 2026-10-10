@@ -98,7 +98,7 @@ $${\color{#D197AE}dr.}$$ $${\color{#CF94AB}vanta}$$ <sub>or</sub> $${\color{#CF9
     <br>
     $${\color{#C6849E}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, samuel, charlie (•˕ •マⳊ
     <br>
-    $${\color{#BD7491}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a>, <a href="https://github.com/princessbunicorn">princessbunicorn</a>, etc. ૮₍ ´• ˕ •` ₎ა
+    $${\color{#BD7491}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a> ૮₍ ´• ˕ •` ₎ა
     <br>
     (／￣(ｴ)￣)／ $${\color{#B96F8C}my\ kids}$$: <a href="https://github.com/cupiidshot">cupiidshot</a>, <a href="https://github.com/self-preservation8">self-preservation8</a>, <a href="https://github.com/NoOneVinlandAmerican">NoOneVinlandAmerican</a>, <a href="https://github.com/ragingcalamity">ragingcalamity</a>, <a href="https://github.com/chizuru8">chizuru8</a>, <a href="https://github.com/Sunnyzarts">Sunnyzarts</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>
     <br>
