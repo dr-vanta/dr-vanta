@@ -96,7 +96,7 @@ $${\color{#D197AE}dr.}$$ $${\color{#CF94AB}vanta}$$ <sub>or</sub> $${\color{#CF9
         <summary>$${\color{#C4809B}friends\ list}$$</summary>
     Σ>―(〃°ω°〃)♡→ $${\color{#D197AE}awesome\ partner}$$: <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>
     <br>
-    $${\color{#C6849E}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, samuel, charlie (•˕ •マⳊ
+    $${\color{#C6849E}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, <a href="https://github.com/SamuelTDemon">SamuelTDemon</a>, charlie (•˕ •マⳊ
     <br>
     $${\color{#BD7491}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a> ૮₍ ´• ˕ •` ₎ა
     <br>
