@@ -44,7 +44,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
                 
 <div align="center">
                 
-[<i>one</i>](https://github.com/suqiparkrr) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [<b>two</b>](https://github.com/DRmRETRO) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> [three](https://github.com/a-dead-plate) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20> <ins>[four](https://en.pronouns.page/@phantasydreams)</ins>
+[<b>whole garden/sys</b>](https://github.com/the-forget-me-not-system) <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1437_20260625125052.png" width=20>
                 </div>
             </td>
         </tr>
@@ -60,7 +60,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
 
 <img src="https://file.garden/Z1wsLskJxRiY2oPJ/Untitled1629_20260912235312.png" align="right" width=125>
          
-[pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media), [pt-friendships](https://github.com/pt-friendships) (ty for putting my message for those peeps <3), [pt-heavyfickin](https://github.com/pt-heavyfictkin), [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall), [forsakentown](https://github.com/forsakentown), [choco-town](https://github.com/choco-town), [music-town](https://github.com/music-town), [pt-of-forsaken](https://github.com/pt-of-forsaken), [pt-icon](https://github.com/pt-icon), [pt-ship-nominations](https://github.com/pt-ship-nominations) (me and him ♡), [kaotown](https://github.com/kaotown), [paw-town](https://github.com/paw-town), [casinotown](https://github.com/casinotown), [daggerstruckmage](https://github.com/daggerstruckmage)
+[pt-players](https://github.com/pt-players), [title-town](https://github.com/title-town), [pt-fashion](https://github.com/pt-fashion), [pt-walk-of-fame](https://github.com/pt-walk-of-fame), [pt-hall-of-media](https://github.com/pt-hall-of-media), [pt-friendships](https://github.com/pt-friendships) (ty for putting my message for those peeps <3), [pt-heavyfickin](https://github.com/pt-heavyfictkin), [PT-FANtastic-Hall](https://github.com/PT-FANtastic-Hall), [forsakentown](https://github.com/forsakentown), [choco-town](https://github.com/choco-town), [music-town](https://github.com/music-town), [pt-of-forsaken](https://github.com/pt-of-forsaken), [pt-icon](https://github.com/pt-icon), [pt-ship-nominations](https://github.com/pt-ship-nominations) (me and him ♡), [kaotown](https://github.com/kaotown), [paw-town](https://github.com/paw-town), [casinotown](https://github.com/casinotown), [daggerstruckmage](https://github.com/daggerstruckmage), [pt-everypony](https://github.com/pt-everypony)
 <br>
 <br>
 <br>
@@ -101,7 +101,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
         <summary>$${\color{#3C416D}friends\ list}$$</summary>
     Σ>―(〃°ω°〃)♡→ $${\color{#262F5C}awesome\ partner}$$: <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>
     <br>
-    $${\color{#283458}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, samuel, charlie (•˕ •マⳊ
+    $${\color{#283458}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, <a href="https://github.com/SamuelTDemon">SamuelTDemon</a>, charlie (•˕ •マⳊ
     <br>
     $${\color{#283458}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a>, <a href="https://github.com/princessbunicorn">princessbunicorn</a>, etc. ૮₍ ´• ˕ •` ₎ა
     <br>
