@@ -101,7 +101,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
         <summary>$${\color{#3C416D}friends\ list}$$</summary>
     Σ>―(〃°ω°〃)♡→ $${\color{#262F5C}awesome\ partner}$$: <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>
     <br>
-    $${\color{#262F5C}my\ qppbffuteotpictambnr}$$: <a href="https://github.com/no1bestPisschugger">no1bestPisschugger</a>
+    $${\color{#262F5C}my\ qppbffuteotpictambnr}$$: <a href="https://github.com/no1bestPisschugger">no1bestPisschugger</a> ꉂ(˵˃ ᗜ ˂˵)
     <br>
     (•˕ •マⳊ $${\color{#283458}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, <a href="https://github.com/SamuelTDemon">SamuelTDemon</a>, charlie
     <br>
