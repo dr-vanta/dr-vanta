@@ -105,7 +105,7 @@ $${\color{#656287}dr.}$$ $${\color{#293463}vanta}$$ <sub>or</sub> $${\color{#141
     <br>
     $${\color{#283458}edgylords}$$: <a href="https://github.com/viimsey">viimsey</a>, <a href="https://github.com/star-employee">star-employee</a>, <a href="https://github.com/pastellcloudyy">pastellcloudyy</a>, <a href="https://github.com/earl-grey-mp4">earl-grey-mp4</a>, <a href="https://github.com/zephyrclysm">zephyrclysm</a>, <a href="https://github.com/SamuelTDemon">SamuelTDemon</a>, <a href="https://github.com/Symptoms-of-Devotion">Symptoms-of-Devotion</a>, charlie (•˕ •マⳊ 
     <br>
-    ૮₍ ´• ˕ •` ₎ა $${\color{#283458}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a>
+    ૮₍ ´• ˕ •` ₎ა $${\color{#283458}tower\ of\ rotten\ babies}$$: <a href="https://github.com/kaite-kina">kaite-kina</a>, <a href="https://github.com/RavensGraveCooperation">RavensGraveCooperation</a>, <a href="https://github.com/RIBBON-RABBIT">RIBBON-RABBIT</a>
     <br>
     $${\color{#283458}and\ one\ duo}$$: <a href="https://github.com/Coinsflips">Coinsflips</a> ٩(^ᗜ^ )و ´-
     <br>
